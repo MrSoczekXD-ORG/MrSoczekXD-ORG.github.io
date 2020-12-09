@@ -1,1 +1,0 @@
-# MrSoczekXD-ORG.github.io
